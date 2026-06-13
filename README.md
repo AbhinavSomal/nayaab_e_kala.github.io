@@ -1,1 +1,0 @@
-Naayaab_e_kala
